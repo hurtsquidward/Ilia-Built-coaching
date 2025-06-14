@@ -1,0 +1,2 @@
+About Ilia Nazari
+Hi, I’m Ilia Nazari—a dedicated ISSA-certified personal trainer with CPR & AED certifications, and an IKF Don 2 black belt in kickboxing. With years of hands-on experience coaching clients from all walks of life, I blend science-backed training methods with real-world fighting discipline. My passion is helping you conquer your goals, whether it’s sculpting a championship physique or mastering functional fitness. Let’s team up and unleash your inner champion!
